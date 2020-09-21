@@ -1,1 +1,1 @@
-# Chocolate-Cake-2
+This recipe is about making a chocolate cake.
